@@ -1,4 +1,6 @@
-# 😀 우리들의 21년 프로젝트를 소개합니다
+# 😀 WELCOME TO CHALLENGERS 😀
+
+
 
 ### 😁 CHALLENGERS PROJECT (21.03.09 ~ )
 
